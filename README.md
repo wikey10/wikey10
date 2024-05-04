@@ -12,7 +12,7 @@ Welcome to my little corner of the internet! I'm a Mobile App Developer by day a
 ## What I Do
 
 - 💻 By day, I'm a Mobile App Developer.
-- 
+  
 ## Let's Connect!
 
 I'm always up for a chat or collaboration! Here's where you can find me:
