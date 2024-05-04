@@ -12,6 +12,7 @@ Welcome to my little corner of the internet! I'm a Mobile App Developer by day a
 ## What I Do
 
 - 💻 By day, I'm a Mobile App Developer.
+- After hours, I'm just watching the ⚽️ games.
   
 ## Let's Connect!
 
