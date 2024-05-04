@@ -1,6 +1,6 @@
 # Hey, I'm @wikey10 ! 🌟
 
-Welcome to my little corner of the internet! I'm a Mobile App Developer by day and a Geek enthusiast by night. Here's a bit about me:
+Welcome to my little corner of the internet! I'm a Mobile App Developer by day and a Football enthusiast by night. Here's a bit about me:
 
 ## About Me
 
